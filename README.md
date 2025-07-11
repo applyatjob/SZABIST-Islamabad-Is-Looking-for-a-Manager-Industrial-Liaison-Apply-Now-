@@ -11,7 +11,7 @@ If you’re motivated, experienced, and ready for a new challenge — this job m
 
 **Apply through:** www.applyatjob.com
 
-Looking for more opportunities?
+**Looking for more opportunities?**
 
 At ApplyatJob, you can explore hundreds of roles tailored to your education, skills, and interests. Whether you're just starting your career or looking to step into a leadership role, we’re here to help you find the right fit.
 
@@ -20,5 +20,6 @@ At ApplyatJob, you can explore hundreds of roles tailored to your education, ski
 . Easy application process
 
 . Verified listings
+
 Don’t miss out — visit ApplyatJob.com today and take the next step in your career journey!
 
